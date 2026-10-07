@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gall1um
-- 🌱 Currently a secondarty schoool student in Vancouver
+- 🌱 UIUC / ECE
 - 📫 Ericyu7804@gmail.com
 - 😄 He/Him
 
